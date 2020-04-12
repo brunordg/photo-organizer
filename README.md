@@ -1,6 +1,4 @@
-![image_descriptor](https://image.freepik.com/vetores-gratis/conceito-de-negocio-isometrico-de-gerenciamento-de-tempo-para-o-design-da-pagina-web-com-grupo-de-funcionarios-trabalhando-no-grande-relogio_1284-32032.jpg)
-
-
+![image_descriptor](https://image.freepik.com/vetores-gratis/personagens-de-pessoas-segurando-o-conceito-de-gerenciamento-de-tempo_53876-35232.jpg | width=50)
 
 # Photo Organizer
 
