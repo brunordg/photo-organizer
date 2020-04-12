@@ -1,4 +1,4 @@
-![image_descriptor](https://image.freepik.com/vetores-gratis/personagens-de-pessoas-segurando-o-conceito-de-gerenciamento-de-tempo_53876-35232.jpg | width=50)
+![image_descriptor](https://image.freepik.com/vetores-gratis/personagens-de-pessoas-segurando-o-conceito-de-gerenciamento-de-tempo_53876-35232.jpg)
 
 # Photo Organizer
 
